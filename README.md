@@ -1,3 +1,4 @@
+![logo](https://github.com/RealAditya/RealAditya/blob/main/Banner.png)
 <h1 align="center">Hi 👋, I'm Aditya Shewale</h1>
 <h3 align="center">I'm a result-oriented 3rd year Computer Science Student with a specialization in Cyber Security.</h3>
 
