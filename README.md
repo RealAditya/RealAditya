@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **adityasshewale2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CBJ9tfwiEGmiPpVi8w50gaOUv5T4XABp/view?usp=sharing](https://drive.google.com/file/d/1CBJ9tfwiEGmiPpVi8w50gaOUv5T4XABp/view?usp=sharing)
+- 📄 Know more about me? Visit: [https://drive.google.com/file/d/1CBJ9tfwiEGmiPpVi8w50gaOUv5T4XABp/view?usp=sharing](https://drive.google.com/file/d/1CBJ9tfwiEGmiPpVi8w50gaOUv5T4XABp/view?usp=sharing)
 
 - ⚡ Fun fact **I am too good at games.**
 
